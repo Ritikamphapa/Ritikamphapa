@@ -1,4 +1,4 @@
-![Uploading standard.gif…]()
+
 - 👋 Hi, I’m @Ritikamphapa
 - 👀 I’m interested in AI/ML,IoT and Cloud Computing
 - 🌱 I’m currently learning Frontend

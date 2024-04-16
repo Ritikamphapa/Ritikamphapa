@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI/ML,IoT and Cloud Computing
 - 🌱 I’m currently learning Frontend
 - 💞️ Ask me:HTML,CSS,C,JAVA,....(will fill soon)
-- 📫 How to reach me :https://www.instagram.com/ritikamohapatra19?igsh=MXdld2w0NWk4bjNwcw==
+- 📫 How to reach me :mohapatraritika58@gmail.com;ritikamohapatra801@gmail.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I am smarter than a goldfish;I understood DARK in one go before season 3 episode7#Intelligent
 - 💫 About Me:A kdrama addict living in a nolan world with a tollywood affinity from kalinga
